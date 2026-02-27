@@ -9,7 +9,7 @@
 
 💬 Ask me about: AI automation, API design, full-stack development, Zapier/Make workflows, and building tech-driven startups.  
 
-⚡ Fun fact: I sometimes build complete prototypes over a weekend — just to see an idea come alive.  
+⚡ Fun fact: I write bugs in codes and riffs in guitars- both are unintentional..
 
 ---
 
